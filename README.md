@@ -1,10 +1,10 @@
-  # ____ ✘ i love my kiddo omfg ‹
+  # ____ X✘x×· i love my kiddo omfg ! ‹
   
 
-![image alt](https://github.com/MARTINEATISHY/Teststeswwt/blob/67297aad0b775f115bef747be97a5b998d21a3d4/hazbin-hotel-vox.gif)
+![image alt](https://github.com/MARTINEATISHY/Nothing/blob/da56df7f3a9df95e4ebffcbc420badb6410bd4df/angel-dust-hazbin-hotel.gif)
 
 
-**° ′’ 🦈 — heya there !  ’′ °**
+**° ′’ 🕷️ — heya there !  ’′ °**
 
              
  ^ *I'm very paranoid about dnis/dnius so if you have it written but does not mind talking to someone,me,Specifically,talk to me first because i don't want to screw things up... it's most likely that I'll be kinda nervous at first bc i might think i did something wrong or that I'm bothering you.. i really respect rules even more when it's about ppl,but that doesn't mean you can't interact with me too,of course · · ·* ^
