@@ -3,7 +3,8 @@
 **° ′’ ˙ . 𓏵× — heya there !  ’′ °**
 
              
- ^ *I'm very paranoid about dnis/dnius so if you have it written but does not mind talking to someone,me,Specifically,talk to me first because i don't want to screw things up...(won't start a conversation first) it's most likely that I'll be kinda nervous at first bc i might think i did something wrong or that I'm bothering you.. i really respect rules even more when it's about ppl,but that doesn't mean you can't interact with me too,of course · · ·* ^
+ ^ *I'm a psychopath.read patreon for more info.
+ I'm very paranoid about dnis/dnius so if you have it written but does not mind talking to someone,me,Specifically,talk to me first because i don't want to screw things up...(won't start a conversation first) it's most likely that I'll be kinda nervous at first bc i might think i did something wrong or that I'm bothering you.. i really respect rules even more when it's about ppl,but that doesn't mean you can't interact with me too,of course · · ·* ^
 
                      ⚰️
 
